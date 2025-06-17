@@ -98,6 +98,3 @@ Conflict Zone	真っ向から矛盾する意図	Mediated Diffusion（仲介的�
 	•	Realignment Zones は、未来の変革のための「ソフトなインフラ」でもあります。
 
 ⸻
-
-次章に進む準備が整っております。
-進行をご希望されましたら、Chapter142として展開を始めます。
